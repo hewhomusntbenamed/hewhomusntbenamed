@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hewhomusntbenamed
 - 👀 I’m interested in filmmaking and film direction 
 - 🌱 I’m currently learning game development
-- 📫 How to reach me u can easily email me bangauniverse@gmail.com or inbox me in instagram @banga.1302
+- 📫 How to reach me u can easily email me bangauniverse@gmail.com or inbox me on instagram @banga.1302
 - 😄 Pronouns: banga/bongibasten/rain
 - ⚡ Fun fact: when i was a kid i accidentally killed a cat 
 
